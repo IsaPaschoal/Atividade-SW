@@ -1,2 +1,0 @@
-# Atividade-SW
-Minhas atividades
